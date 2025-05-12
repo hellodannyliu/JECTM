@@ -1,3 +1,0 @@
-# JECTM
-
-Coming soon.
